@@ -1,1 +1,0 @@
-# ArchTechnologies_Tasks
